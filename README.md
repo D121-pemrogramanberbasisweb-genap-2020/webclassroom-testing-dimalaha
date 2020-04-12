@@ -1,3 +1,4 @@
-Nama : 
+Nama : Dea Ivanka Malaha
 
-NIM  :
+NIM  : D121181008
+
